@@ -1,0 +1,1 @@
+# Eksponen-Kelas-X-SMA
